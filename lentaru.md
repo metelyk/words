@@ -1,14 +1,14 @@
 What is lenta.ru?
 
-Online news resource, based in Russia. You can think of it as Russian online equivalent of the New Yorker, which in itself is pretty damn awesome, all things considered. You can read the materials and find out what the people profiled in them have *actually* said or what has *actually* transpired. And don't take it for granted, if you need a benchmark to bring your awareness back to the value of professional reporting just turn the Fox news on for some contrast.
+Online news resource, based in Russia. You can think of it as Russian online equivalent of the New Yorker (well I would argue that way), which in itself is pretty damn awesome, all things considered. Readers of their materials can find out what the people profiled have *actually* said or what has *actually* transpired. And don't take it for granted, if you need a benchmark to bring your awareness to the value of professional reporting just turn the Fox news on for some contrast.
 
 What is being done to lenta.ru?
 
-On March 12, the editor-in-chief Galina Timchenko that has been in charge of the resource since 2004 will be replaced by A. Goreslavky that throughout his career has historically been in charge of ass kissing. The decision was made by the owner of the merged "Afisha-Rambler-SUP". This "smooth" move is easy to interpret, which some journalists already have (Ilya Azar is leaving as well).
+On March 12, the announcement was made that editor-in-chief Galina Timchenko that has been in charge of the resource since 2004 will be replaced by A. Goreslavky that throughout his career has historically been in charge of, well, ass kissing. The decision was made by one of the investors of merged "Afisha-Rambler-SUP" A. Mamut. This "smooth" move is easy to interpret, which some journalists already have (Ilya Azar announced of his departure in his Twitter today).
 
 Why you should you be horrified?
 
-Immediate aspects. lenta.ru is one of the very few professional and honest media resources in Russia. Losing them means losing access to credible news source. 
+Immediate aspects. lenta.ru is one of the very few professional and honest media resources in Russia. Losing them means losing access to credible news source. And Russia needs credible and honest media, most desperately.
 
 In the past months their materials reflected difference in opinions over Ukrainian events, helping understand different groups involved in the conflict. Some examples off the top of my head - Maria Baronova spoke with riot police Berkut in Kyiv shortly before the violence broke out, Ilya Azar interviewed one of the "Pravyj Sector" leaders. 
 
