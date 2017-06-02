@@ -1,4 +1,5 @@
 What is lenta.ru?
+#todo add some comments
 
 Online news resource, based in Russia. You can think of it as Russian online equivalent of the New Yorker (well I would argue that way), which in itself is pretty damn awesome, all things considered. Readers of their materials can find out what the people profiled have *actually* said or what has *actually* transpired. And don't take it for granted, if you need a benchmark to bring your awareness to the value of professional reporting just turn the Fox news on for some contrast.
 
