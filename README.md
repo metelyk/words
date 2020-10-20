@@ -1,4 +1,4 @@
 words
 =====
 
-Words, mostly. And whole sentences too. All very political, super subjective ^_^
+Words, mostly. And whole sentences too. All super subjective ^_^
